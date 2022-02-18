@@ -16,7 +16,7 @@ Penyebab antar ras ini ternyata adalah seseorang yang dibekali kekuatan `Coding 
 
 `Coding` adalah alat yang awalnya membantu operasional manusia, ternyata berubah menjadi senjata yang mampu membuat seseorang mengidap kelainan psikosomatis, hingga saat ini, menyebabkan terjadinya wabah bunuh diri.
 
-Dalam tuntunan ras Cancerian, ia ditugaskan untuk meningkatkan kemampuan-kemampuan mulai dari cara mengembara, bernegosiasi, memulihkan pikiran dan perasaan orang dari upaya bunuh diri, hingga membunuh tanpa meninggalkan jejak jika dalam keadaan terdesak.  
+Dalam tuntunan ras Cancerian, ia ditugaskan untuk meningkatkan kemampuan-kemampuan mulai dari cara mengembara antar konstelasi, bernegosiasi, memulihkan pikiran dan perasaan orang dari upaya bunuh diri, hingga membunuh tanpa meninggalkan jejak jika dalam keadaan terdesak.  
 
 Kemampuan Nadir masih jauh dari harapan untuk menemukan dan membunuh sosok penyebab perang antar ras tersebut, namun dewi melihat potensi Nadir dan yakin untuk memberikan tanggung jawab tersebut padanya.  
 
