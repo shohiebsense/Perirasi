@@ -1,5 +1,5 @@
 # Perirasi
-Pengidap Krisis Eksistansi Berinkarnasi Menjadi Pengembara Konstelasi
+## Pengidap Krisis Eksistansi Berinkarnasi Menjadi Pengembara Konstelasi
 
 "Ada pertanyaan?" (Manager tak bernama)
 
