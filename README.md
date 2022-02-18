@@ -10,7 +10,7 @@ Setelah berpindah semesta, ia bertemu dengan dewi Selenoir untuk mengemban misi 
 
 Perang antar ras mengakibatkan kemunculan organisme berbahaya karena mutasi genetik dan menghancurkan ekosistem, dan menjadi tidak layak untuk dihuni.  
 
-Penyebab antar ras ini ternyata adalah seseorang yang dibekali kekuatan `Coding Demidemon` dan pesona yang lembut mampu meyakinkan banyak orang.  
+Penyebab antar ras ini ternyata adalah seseorang yang dibekali kekuatan `Coding Demidemon`, serta pesona yang lembut mampu memikat dan meyakinkan banyak orang.  
 
 `Coding` adalah alat yang awalnya membantu operasional manusia, ternyata berubah menjadi senjata yang mampu membuat seseorang mengidap kelainan psikosomatis, hingga saat ini, menyebabkan terjadinya wabah bunuh diri.
 
