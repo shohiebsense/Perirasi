@@ -32,3 +32,5 @@ Kopinya telah disiapkan, namun bukan kembali, ia mencari tempat lain selain kant
 Arah langkahnya ternyata menuju taman tempat biasa ia duduk, dikelilingi hamparan rumput yang dirawat sangat baik dan pepohonan rimbun
 
 mampu meneduhi terik matahari pusat kota, bersama dengan melenyapkan riuh kesibukan dari suara kendaraan, sampai manusia-manusia yang memikul emosi atas macam-macam beban pekerjaannya.  
+
+//TODO Nadir
