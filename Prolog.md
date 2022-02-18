@@ -15,7 +15,7 @@ Di dunia industri pengembangan perangkat lunak, tidak hanya `retrospeksi`, begit
 
 Tidak menutup kemungkinan, bakal terminologi2 baru menambah dari yang sudah familiar menjadi bahan sosialisasi perkantoran.  
 
-Fase mental seseorang selau serupa, dari awalnya terdengar begitu asing, mencari tahu, sampai dipakai oleh orang-orang untuk melanjutkan percakapan.  
+Fase mental seseorang selalu serupa, dari awalnya terdengar begitu asing, mencari tahu, sampai dipakai oleh orang-orang untuk melanjutkan percakapan.  
 
 Orang yang bekerja di sini, familiar dengan `coding`, mereka adalah sekian banyak dari lulusan seputar perangkat lunak, maupun banyak yang dari luar hubungan jurusan itu, di banyak universitas yang membukanya.  
 
