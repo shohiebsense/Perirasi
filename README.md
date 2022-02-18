@@ -1,7 +1,9 @@
 # Perirasi
 Pengidap Krisis Eksistansi Berinkarnasi Menjadi Pengembara Konstelasi  
 
-Sinopsis
+## Sinopsis  
+
+
 Nadir Cancerian, ialah putra dari Nazar Cancerian, salah satu keluarga kelas menengah dari ras Cancerian Lunar IX, ras yang menjadi langka, karena lebih gemar mengembara daripada berkumpul dan membanugun keluarga, pada era Informasi.  
 
 Setelah berpindah semesta, ia bertemu dengan dewi Selenoir untuk mengemban misi untuk memulihkan perkara-perkara sosial politis yang membuat terjadinya perang antar ras.  
