@@ -18,4 +18,4 @@ Dalam tuntunan ras Cancerian, ia ditugaskan untuk meningkatkan kemampuan-kemampu
 
 Kemampuan Nadir masih jauh dari harapan untuk menemukan dan membunuh sosok penyebab perang antar ras tersebut, namun dewi melihat potensi Nadir dan yakin untuk memberikan tanggung jawab tersebut padanya.  
 
-Dalam tugasnya ia telah dibekali kemampuan yang diperoleh dari semesta sebelumnya, untuk terus berkembang menjadi seorang `Coder Assasin`, untuk bisa membunuh sang `Coding Demidemo` penyebab perselisahan antar ras tersebut.
+Dalam tugasnya ia telah dibekali kemampuan yang diperoleh dari semesta sebelumnya, untuk terus berkembang menjadi seorang `Coder Assasin`, untuk bisa membunuh sang `Coding Demidemon` penyebab perselisahan antar ras tersebut.
