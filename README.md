@@ -8,7 +8,7 @@ Nadir Cancerian, ialah putra dari Nazar Cancerian, salah satu keluarga kelas men
 
 Selain itu, ras Cancerian Lunar IX lebih gemar mengembara daripada berkumpul dan membanugun keluarga. 
 
-Setelah berpindah semesta, ia bertemu dengan dewi Selenoir untuk mengemban misi untuk memulihkan perkara-perkara sosial politis yang membuat terjadinya perang antar ras.  
+Setelah berpindah semesta dari bumi, ia bertemu dengan dewi Selenoir untuk mengemban misi untuk memulihkan perkara-perkara sosial politis yang membuat terjadinya perang antar ras.  
 
 Perang antar ras mengakibatkan kemunculan organisme berbahaya karena mutasi genetik dan menghancurkan ekosistem, menjadi semesta tidak layak untuk dihuni.  
 
