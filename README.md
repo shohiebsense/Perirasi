@@ -8,7 +8,7 @@ Nadir Cancerian, ialah putra dari Nazar Cancerian, salah satu keluarga kelas men
 
 Setelah berpindah semesta, ia bertemu dengan dewi Selenoir untuk mengemban misi untuk memulihkan perkara-perkara sosial politis yang membuat terjadinya perang antar ras.  
 
-Perang antar ras mengakibatkan kemunculan organisme berbahaya karena mutasi genetik dan menghancurkan ekosistem, dan menjadi tidak layak untuk dihuni.  
+Perang antar ras mengakibatkan kemunculan organisme berbahaya karena mutasi genetik dan menghancurkan ekosistem, menjadi semesta tidak layak untuk dihuni.  
 
 Penyebab antar ras ini ternyata adalah seseorang yang dibekali kekuatan `Coding Demidemon`, serta pesona yang lembut mampu memikat dan meyakinkan banyak orang.  
 
