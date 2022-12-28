@@ -1,5 +1,5 @@
 # Perirasi
-Pengidap Krisis Eksistansi Berinkarnasi Menjadi Pengembara Konstelasi  
+Pengidap Krisis Eksistensi Bereinkarnasi Menjadi Pengembara Konstelasi  
 
 ## Sinopsis  
 
